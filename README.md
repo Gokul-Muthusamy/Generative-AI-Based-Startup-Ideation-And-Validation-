@@ -1,0 +1,1 @@
+# Generative-AI-Based-Startup-Ideation-And-Validation-
